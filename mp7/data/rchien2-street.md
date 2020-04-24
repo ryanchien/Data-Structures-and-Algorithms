@@ -1,0 +1,1 @@
+Being ever so cautious not to slip and fall on his head, Ryan walks towards Siebel on the streets. Suddenly, out of nowhere, a massive pickup truck swerves out of nowhere and hits Ryan, flinging his body a hundred meters down the street. Ryan, having a frail constitution, does not survive the tragic accident and dies.

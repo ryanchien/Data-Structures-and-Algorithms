@@ -1,0 +1,1 @@
+Ryan remembers that his data structures professor goes by the name of Wade and relays this information to Taylor. Taylor, overjoyed that she is finally able to meet her soulmate, lets out a blood-curling shriek and spontaneously combusts, destroying everything in a one mile radius (including poor, poor Ryan).
